@@ -1,3 +1,2 @@
 ### Leaders
 
-* [Abdolbast Greede](mailto:)
